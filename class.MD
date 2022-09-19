@@ -1,3 +1,0 @@
-Charlie Brown
-Here
-Something
